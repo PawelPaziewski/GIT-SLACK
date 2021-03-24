@@ -1,0 +1,1 @@
+Mój commit - Paziewski Paweł
